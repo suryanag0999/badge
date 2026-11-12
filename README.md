@@ -5,4 +5,4 @@ i am doing ms data sceince n ai
 richest n fit  in the circle 
 will sit with ias n ministers
 money follows me 
-buying E class soon
+buying merceds E class soon
